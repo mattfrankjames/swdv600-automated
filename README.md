@@ -1,0 +1,1 @@
+# swdv600-automated
